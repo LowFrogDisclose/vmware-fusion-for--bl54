@@ -1,4 +1,4 @@
-
+VMware Fusion for macOS exclusive Helper: hotkey-customization & window-management offers the most advanced VMware Fusion for macOS helper, with hotkey-customization and
 
 
 
